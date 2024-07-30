@@ -1,16 +1,16 @@
-## Hi there 👋
+## _bem vindos_:💕
 
-<!--
-**anny-danielle/anny-danielle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+oii amigos, meu nome é Anny👸🏽
 
-Here are some ideas to get you started:
+-insta: Anny.04
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+_life is of moments_
+
+-estou estudando no alura😘
+
+você pode entrar em contato comigo 📧
+
+00001-01441030sp@al.educacao.sp.gov.br
+
+
+![image](https://github.com/user-attachments/assets/b4e3e1d0-fd8d-4d9d-a1c9-9cf885d9d6b2)
